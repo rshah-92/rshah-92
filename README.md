@@ -5,4 +5,3 @@
 - 📫 Reach me via [Email](mailto:rshah92@asu.edu) or connect on [LinkedIn](https://www.linkedin.com/in/rudra-sanjay-shah-a0291b272/).
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Beyond coding, I enjoy experimenting with new recipes and exploring different cuisines. Let's code and cook!
-
